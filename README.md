@@ -189,9 +189,9 @@ We collect feedback and refine our initiatives.
 
 # 👥 Team Structure
 
-### Founder: Madhu Shankar Kumar
+### Founder: *Madhu Shankar Kumar*
 
-### Co-Founder: Ravi Ranjan
+### Co-Founder: *Ravi Ranjan*
 
 We are college students committed to responsible and structured impact-building.
 
