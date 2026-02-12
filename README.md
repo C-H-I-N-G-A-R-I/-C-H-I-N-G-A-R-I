@@ -1,6 +1,6 @@
 # 🌟 Chingari Foundation  
 ### A Youth-Led Initiative for Community Safety, Education & Social Welfare
-####Changing Humanity through Innovation, Nurture, Growth, Awareness, Respect & Inclusion
+Changing Humanity through Innovation, Nurture, Growth, Awareness, Respect & Inclusion
 
 ---
 
