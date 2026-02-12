@@ -287,7 +287,7 @@ We believe trust is built through consistency.
 
 Because change does not begin with noise.
 
-It begins with a spark.
+*It begins with a spark.*
 
 A spark of awareness.  
 A spark of responsibility.  
